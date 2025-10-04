@@ -1,5 +1,5 @@
 
-![MasterHead](https://avatars.githubusercontent.com/u/47536922?s=400&u=bea6ebb54924b8971b231c2aebcc58b788a45a5b&v=4)
+![MasterHead](https://blog.wiseowls.co.nz/wp-content/uploads/2020/03/office-working-app-computer-97077_cr-1536x435.jpg)
 
 
 <h1 align="center">Hi 👋, I'm Hüseyin TEMEL</h1>
